@@ -16,5 +16,5 @@
 Беги прочь, глупец, пока аццкий рок не обрушился на тебя со всей его ужасной силой, под которой человеческий разум лопается, как яичная скорлупа, а еретические, ужасные видения, что гасят звёзды и заставляют кричать в беззвучном баттхёрте самих Древних, не застили тебе солнце дня и тишь ночи!
 
 <h1 align="center">
-	<img width="600" src="https://github.com/Pony-and-Fire/buhurtonomicon/blob/master/15240794051440.jpg?raw=true">
+	<img width="700" src="https://github.com/Pony-and-Fire/buhurtonomicon/blob/master/15240794051440.jpg?raw=true">
 </h1>
