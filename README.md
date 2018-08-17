@@ -23,3 +23,69 @@
 <h1 align="center">
 	<img width="700" src="https://github.com/Pony-and-Fire/buhurtonomicon/blob/master/Covers%20and%20design/15240794051440.jpg?raw=true">
 </h1>
+
+## Где ссылки на архивач?
+Держи, если не открывается, юзай прокси.
+
+Новые
+1. http://arhivach.cf/thread/163602/
+2. http://arhivach.cf/thread/164054/
+3. http://arhivach.cf/thread/165068/
+4. http://arhivach.cf/thread/166035/
+5. http://arhivach.cf/thread/168200/
+6. http://arhivach.cf/thread/168637/
+7. http://arhivach.cf/thread/170773/
+8. http://arhivach.cf/thread/171576/
+9. http://arhivach.cf/thread/186680/
+10. http://arhivach.cf/thread/216775/
+11. http://arhivach.cf/thread/241111/
+12. https://arhivach.cf/thread/256466/
+13. http://arhivach.cf/thread/271035/
+14. http://arhivach.cf/thread/271073/
+15. https://arhivach.cf/thread/277113/
+16. https://arhivach.cf/thread/277114/
+17. https://arhivach.cf/thread/280047/
+18. https://arhivach.cf/thread/280048/
+19. http://arhivach.cf/thread/280689/
+20. https://arhivach.cf/thread/282768/
+21. https://arhivach.cf/thread/283594/
+22. https://arhivach.cf/thread/289479/
+23. https://arhivach.cf/thread/295073/
+24. https://arhivach.cf/thread/297941/
+25. https://arhivach.cf/thread/304475/
+26. https://arhivach.cf/thread/308600/
+27. https://arhivach.cf/thread/312206/
+28. https://arhivach.cf/thread/316494/
+29. https://arhivach.cf/thread/324612/
+30. https://arhivach.cf/thread/328479/
+31. https://arhivach.cf/thread/332381/
+32. https://arhivach.cf/thread/334829/
+33. https://arhivach.cf/thread/335431/
+34. https://arhivach.cf/thread/339270/
+35. https://arhivach.cf/thread/339280/
+36. https://arhivach.cf/thread/344588/
+37. https://arhivach.cf/thread/345236/
+38. https://arhivach.cf/thread/347478/
+39. https://arhivach.cf/thread/350406/
+40. https://arhivach.cf/thread/353252/
+41. https://arhivach.cf/thread/354853/
+42. https://arhivach.cf/thread/356027/
+43. https://arhivach.cf/thread/358913/
+44. https://arhivach.cf/thread/360181/
+
+Старые
+http://arhivach.cf/thread/32586 - 1
+http://arhivach.cf/thread/32964 - 2
+http://arhivach.cf/thread/33543 - 3
+http://arhivach.cf/thread/34404 - 4
+http://arhivach.cf/thread/36513 - 5
+http://arhivach.cf/thread/38001 - 6
+http://arhivach.cf/thread/38149 - 7
+http://arhivach.cf/thread/39904 - 8
+http://arhivach.cf/thread/41749 - 9
+http://arhivach.cf/thread/41520 - 10
+http://arhivach.cf/thread/41750 - 11
+http://arhivach.cf/thread/45214 - 12
+http://arhivach.cf/thread/49529 - 13
+http://arhivach.cf/thread/59819 - 14
+http://arhivach.cf/thread/74906 - 15
